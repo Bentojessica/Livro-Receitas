@@ -1,4 +1,4 @@
-# Bolo de Cenoura com cobertura de Chocolate :cake:
+# Bolo de cenoura com cobertura de chocolate :cake:
 
 
 
